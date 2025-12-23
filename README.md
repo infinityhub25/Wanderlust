@@ -1,1 +1,1 @@
-Wanderlust- Find number of amazing and peaceful play to enjoy your vacations
+Wanderlust- Find number of amazing and peaceful places to enjoy your vacations
